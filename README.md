@@ -1,0 +1,1 @@
+Bima jago sekali
