@@ -1,3 +1,1 @@
-Bima jago sekali
-
-berkat bima
+Basic Repository
